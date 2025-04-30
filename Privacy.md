@@ -1,6 +1,6 @@
 # **Prismo - Privacy Policy**  
 
-**Last Updated:** April 30 
+**Last Updated:** April 2025 
 
 Your privacy is important to us. This Privacy Policy explains what data Prosmo collects, how it is used, and how we protect your information. By using Prismo, you agree to the collection and use of information as outlined below.  
 
